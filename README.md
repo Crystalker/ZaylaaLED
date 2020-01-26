@@ -3,10 +3,10 @@ ZAYLAA HOOPS | Stilt Walker
 
 ## 🔥Fire & LED Performer
 🎪Stilt Walker
-##🔘Hoop Instructor
+## 🔘Hoop Instructor
 💖 Pole
-##🐶Rescue Volunteer
+## 🐶Rescue Volunteer
 ⛸Roller Sk8r
-##🧢 #YangGang
+## 🧢 #YangGang
 @deliciouspreps
 ⬇Available for hire
